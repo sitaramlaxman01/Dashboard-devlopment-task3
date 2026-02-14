@@ -24,6 +24,8 @@ Southern region contributed highest sales
 
 High discount products showed lower profit margins
 
+<img width="1181" height="681" alt="Image" src="https://github.com/user-attachments/assets/5fce39bb-5728-4fc7-a04f-d069ec7a6fbd" />
+
 Repeat customers contributed significant revenue
 
 
